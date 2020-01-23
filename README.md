@@ -4,10 +4,4 @@
 
 备用：
 
-https://ji-bd.pw
-
-https://ji-be.pw
-
-https://ji-bf.pw
-
-https://ji-bg.pw
+http://ji-bg.pw
