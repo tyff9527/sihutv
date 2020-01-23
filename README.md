@@ -4,4 +4,4 @@
 
 备用：
 
-http://ji-bg.pw
+http://
